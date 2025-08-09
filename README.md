@@ -52,3 +52,8 @@
 ### After this there was a P2P Peer to Peer Lecture. It was a interactive session by senior with first year students. They thought us the basic of C++ and coding.
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/deb1155c-5efc-49f5-b912-fa34fe06c14f" />
+
+### Then It was our Physics Lecture by Professor Jaspreet Singh. He told us about the basics of Physics and Engineering. He also breifly explained the syllabus of Physics.In the last he gave us some moral values and said to maintain discipline throughout your degree. 
+
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/e4dd90ee-7f52-4eb6-9d4d-2fb80f0b9e08" />
