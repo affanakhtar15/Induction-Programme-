@@ -48,3 +48,7 @@
 
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/4dbf233d-37bc-49a7-9fd2-36b38a56f79d" />
+
+### After this there was a P2P Peer to Peer Lecture. It was a interactive session by senior with first year students. They thought us the basic of C++ and coding.
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/deb1155c-5efc-49f5-b912-fa34fe06c14f" />
