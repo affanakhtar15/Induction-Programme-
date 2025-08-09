@@ -12,4 +12,4 @@
 ### The First Lecture was given by "**Dr. Harpreet Kaur Grewal**" Maam HOD Applied Sciences. She advised us to stay calm and achieve mental and spiritual peace by remembering god. She also told us to enjoy college life and explore campus while maintaining discipline.
 ### Then our Honorable Principal Sir "**Dr. Sehijpal Singh**" highlighted the strength of our college.Guru Nanak Dev Engineering College have completed 70 years. He underlined the history of the college and why was it created.He told us the main objective of the college is to uplift Ruler India.The academic strength of our college. He told us about the prominent alumni of the college who have succeeded in their field. He motivated us to make our college proud. 
 
-### The Chief Guest "**S.Maheshinder Singh Grewal**" Ex-Cabinet Minister and Senior Trustee of 
+### The Chief Guest "**S.Maheshinder Singh Grewal**" Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Educational Trust. He inspired the students by telling about discipline, obeying elders and founding vision of the college. He also motivated the students to not only study but also explore the campus and enjoy your life.
