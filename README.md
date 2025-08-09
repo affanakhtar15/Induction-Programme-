@@ -64,12 +64,7 @@
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/18b419ff-0caf-4cdd-a30c-22ecac4fcc6a" />
 
-
-
-
-
-
-
+### After this lecture we had another lecture on "Millets Super Food" by Mrs. Shaffy Makkar. She clearly explained the benefits of including Millets in our diet. She explained through her slides focus on millets, addressing their significance in 2023, which was designated as the "International Year of Millets. Millets are small-seeded grasses widely cultivated as cereal crops for both human food and animal fodder. They are highly nutritious, resilient to drought, and can be grown in marginal soils, making them important for food security, especially in semi-arid regions of Asia and Africa where 97% of millet production occurs. The presentation highlights millets benefits such as their adaptability, environmental sustainability, and potential to improve farmers’ income and health due to their rich nutritional profile. The aim is to encourage greater awareness and cultivation of millets for sustainable agriculture and better health outcomes.
 
 
 
