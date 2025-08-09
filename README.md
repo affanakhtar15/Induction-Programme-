@@ -2,6 +2,8 @@
 ## Name- Affan Akhtar 
 ## Branch- Electrical Engineering 
 ## Registration No- 25104515
+
+
 ## **Day 1 (30July2025)** 
  <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/a8fbb298-c0c8-4f3b-ae29-5fda31570a3f" />
 
@@ -32,3 +34,9 @@
 ### Then there was a English Proficiency Test and Math Proficiency Test for all the students.
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/c98d2b0b-507b-4380-a7b6-64c4103398ef" />
+
+
+## **Day 2 (4 August 2025)**
+### Our Day begin with a Session by "Causmic Club". They clearly explained the history of the club. They explained that the Causmic Club is created for a cause. They aim for the overall development of the students. The causmic club has successfully organised many events like Ambit youth parliament, GNE ACME and GNE APEX and many more.
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/0788f418-0bf5-46e1-9f44-3068b96ec2d7" />
