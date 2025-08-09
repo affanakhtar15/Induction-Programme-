@@ -28,3 +28,5 @@
 ### Then Buddy4Study team guided students on scholarship opportunities for first year.
 
 ### After that there was lecture by "Dr. Arvind Dhingra" on student development via STEP & TAC. It was a interactive session. He interacted with us by involving us in different activities. He explained that it enhance their academic, personal, and career growth. Also TAC  provides guidance, assessment, and support for student's academic progression, career planning, personal development, and essential skill-building. 
+
+### Then there was a English Proficiency Test and Math Proficiency Test for all the students.
