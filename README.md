@@ -57,3 +57,12 @@
 
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/e4dd90ee-7f52-4eb6-9d4d-2fb80f0b9e08" />
+
+## **Day 4 (5 August 2025)**
+
+### New Day New Activities Today we had a lecture on "Motor Sports" by Mr. Gautam Murrai. He tought us about the basics of Motor Sports. What is Motor Sports? What is a car and its parts? and all its essential components. Rules to remember during Motor Sports. He also showed us a demonstration how time is very crucial in Motor sport. He also explained that a single mistake can cost a lot in Motor Sports. He encouraged us to take part in Motor Sports as it is very crucial for every branch.
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/18b419ff-0caf-4cdd-a30c-22ecac4fcc6a" />
+
+
+
