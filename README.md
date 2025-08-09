@@ -80,6 +80,21 @@
 
 <img width="400" height="600" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/1283f716-37cb-46cb-8e31-656fd3fd491a" />
 
+## **Day 6 (7 August 2025)**
+
+### New Day New Challenge, Today In Morning We had a Math Lecture by Prof. Rajbir Kaur. She asked us about the basics of Class 12 Maths. Briefly introduce the syllabus for first semester.
+
+### After Math class we had a Physics Class by Prof. Jaspreet Singh. He started the syllabus for the first year. We came to know about Scalar and Vector Field. Also about Delta vector.
+
+### At the end of these classes we were escorted to the Auditorium for next classes.
+
+### Firstly we had a lecture by Dr. Lakhvir Singh Khana on CML (Centre for Multi Faceted Learning). Sir briefly explained about their organisation CML. He advised that our communication skill should be stronger and have self confidence. It was an interactive session. He explained about the NPTEL Course and made us jion the course. He motivated us to do atleast one course a semester. Which will help us to find a good job and package. Also, he encouraged us to go abroad for training for free of cost. He told us to explore around the college and participate in every event to boost our confidence. Moreover, he inspired us to do well in academic as well as co-curricular activities.
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/b6ac621e-c5d5-4335-8b4a-b0be1589cdd8" />
+
+
+
+
 
 
 
