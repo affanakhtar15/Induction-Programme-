@@ -76,3 +76,11 @@
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/c025d8a8-650c-47c0-b474-41c85b04ee20" />
 
+### Next we had lecture by Honorable guest Brigadier P.S. Cheema Sir. He was invited for the inauguration of SSB Ground. He shared valuable information with us. Which we need to become a successful engineer. He shared the experience he had while he was in the war and army ground. He inspired us to stay focus and disciplined. As it was interactive session we shared our ideas with him. 
+
+
+
+
+
+
+
