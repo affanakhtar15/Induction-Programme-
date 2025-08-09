@@ -7,7 +7,7 @@
 ## **Day 1 (30July2025)** 
  <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/a8fbb298-c0c8-4f3b-ae29-5fda31570a3f" />
 
-### Our Day started by 'Pant and Kirtan' at College Gurudwara Sahib and also Refreshment was arranged by the college.
+### Our Day started by 'Path and Kirtan' at College Gurudwara Sahib and also Refreshment was arranged by the college.
 ### Then all students of core Branches gather around the auditorium. We were escorted by the NCC volunteers. All students were seated Branch wise.
  <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/3e13243f-2aed-420b-83f9-6db420c7238e" />
 
