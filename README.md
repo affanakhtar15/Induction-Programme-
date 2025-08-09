@@ -30,3 +30,5 @@
 ### After that there was lecture by "Dr. Arvind Dhingra" on student development via STEP & TAC. It was a interactive session. He interacted with us by involving us in different activities. He explained that it enhance their academic, personal, and career growth. Also TAC  provides guidance, assessment, and support for student's academic progression, career planning, personal development, and essential skill-building. 
 
 ### Then there was a English Proficiency Test and Math Proficiency Test for all the students.
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/c98d2b0b-507b-4380-a7b6-64c4103398ef" />
