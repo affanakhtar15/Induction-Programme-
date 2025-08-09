@@ -24,3 +24,5 @@
 
 ### Our Day started with Expert lecture of "Universal Human Values" by "Dr. Priya Darshni Madam" in the auditorium. She told us that our deepest wish is everlasting happiness and prosperity. She explains that this comes from the right priorities—understanding ourselves, building good relationships, and then meeting material needs. Also helps us reflect on our dreams and worries, showing that there are always multiple paths to our goal. Together, they guide us to live with clarity and purpose.
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/a639d85e-c2d5-4568-8a19-3bc26b2cf8ab" />
+### Then Buddy4Study team guided students on scholarship opportunities for first year.
+### After that there was lecture by "Dr. Arvind Dhingra" on student development via STEP & TAC. It was a interactive session. He interacted with us by involving us in different activities. He explained that it enhance their academic, personal, and career growth. Also TAC  provides guidance, assessment, and support for student's academic progression, career planning, personal development, and essential skill-building. 
