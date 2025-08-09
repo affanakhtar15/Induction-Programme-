@@ -96,6 +96,26 @@
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/f5ad040d-69e0-4680-a9b6-188384fadd7f" />
 
+## **Day 6 (8 August 2025)**
+
+### Another beginning with a cheerful morning, Today we haven't done a lot we just had a workshop tour with our teachers. It was a great experience to see the place where we would be working. Teachers told us all the important information regarding workshopes we will need.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
