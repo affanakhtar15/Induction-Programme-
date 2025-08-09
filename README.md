@@ -36,7 +36,9 @@
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/c98d2b0b-507b-4380-a7b6-64c4103398ef" />
 
 
-## **Day 2 (4 August 2025)**
+## **Day 3 (4 August 2025)**
 ### Our Day begin with a Session by "Causmic Club". They clearly explained the history of the club. They explained that the Causmic Club is created for a cause. They aim for the overall development of the students. The causmic club has successfully organised many events like Ambit youth parliament, GNE ACME and GNE APEX and many more.
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/0788f418-0bf5-46e1-9f44-3068b96ec2d7" />
+
+### Then there was a expert lecture by "Dr. Priya Darshni Maam" on "Universal Human Values". She clearly explained that   true, lasting happiness comes from being at peace within yourself—not just from outside pleasures or things. We all have needs of the body (like food) and needs of the self (like respect and love). But many problems—like stress and peer pressure—happen when we confuse these, or look for happiness just in things or other’s approval. By understanding ourselves and following what feels truly right inside (our natural acceptance), we can feel happier, more confident, and have better relationships with others.
