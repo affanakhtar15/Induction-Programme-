@@ -18,3 +18,8 @@
 
 ### After having lunch we all were gathered in the auditorium. From there we have volunteered to the department visit where we had a conversation with all the teachers of the department. After the conversation respected teachers took us for a department tour and showed us all the labs and classrooms.
 ### That's how our first day ended.
+
+
+## **Day 2 (1 August 2025)
+
+### Our Day started with Expert lecture of "Universal Human Values" by "Dr. Priya Darshni Madam" in the auditorium. She told us that our deepest wish is everlasting happiness and prosperity. She explains that this comes from the right priorities—understanding ourselves, building good relationships, and then meeting material needs. Also helps us reflect on our dreams and worries, showing that there are always multiple paths to our goal. Together, they guide us to live with clarity and purpose.
