@@ -7,3 +7,5 @@
 
 #### Our Day started by 'Pant and Kirtan' at College Gurudwara Sahib and also Refreshment was arranged by the college.
 #### Then all students of core Branches gather around the auditorium. We were escorted by the NCC volunteers. All students were seated Branch wise.
+
+#### The First Lecture was given by "Dr. Harpreet Kaur Grewal" Maam HOD Applied Sciences. She advised us to stay 
