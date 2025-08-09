@@ -92,6 +92,10 @@
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/b6ac621e-c5d5-4335-8b4a-b0be1589cdd8" />
 
+### Next we had a session by Dr.Jasvir Singh Grewal Incharge of NSS. He described the motto of their club NSS (National Service Scheme). In the beginning there was spiritual kirtan by the volunteers of NSS. After that there was a Sanskrit spritual music. Later there was an interactive session between the sir and students. Sir showed us how nature is effected by human pollution. How it had a huge effect on birds and animals. Then there was a comedy skit by two students which was full of laughter. Next Sir played a game with us to increase the attention. At last he motovated us to jion the club.
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/f5ad040d-69e0-4680-a9b6-188384fadd7f" />
+
 
 
 
