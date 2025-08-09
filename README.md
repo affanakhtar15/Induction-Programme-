@@ -70,4 +70,9 @@
 
 <img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/3db46ce5-d9c6-4fe1-9bc7-32512dc91d64" />
 
+## **Day 5 (6 August 2025)**
+
+### Another morning and we attended the lecture "Fitness for Engineers" delivered by Mr. Manpreet Singh. He highlighted that fitness is more important for Engineer than normal people. For engineers, staying fit is key to maintaining both physical health and mental agility. Regular exercise counters the effects of long hours at a desk and boosts energy for problem-solving. A healthy body helps manage stress and keeps the mind sharp for tackling complex projects.It was a interactive session as we took part in some activities. Like Sir tested our fitness by making us do push-up and other physical activities. 
+
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/c025d8a8-650c-47c0-b474-41c85b04ee20" />
 
