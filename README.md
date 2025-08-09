@@ -14,4 +14,7 @@
 
 ### The Chief Guest "**S.Maheshinder Singh Grewal**" Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Educational Trust. He inspired the students by telling about discipline, obeying elders and founding vision of the college. He also motivated the students to not only study but also explore the campus and enjoy your life.
 ### After that there was lunch time for all the students. We explored the campus and had lunch at the canteen.
+<img width="400" height="400" alt="clipboard_img_thumb" src="https://github.com/user-attachments/assets/78ddde42-3f4a-4958-a7d1-27e39563d345" />
+
 ### After having lunch we all were gathered in the auditorium. From there we have volunteered to the department visit where we had a conversation with all the teachers of the department. After the conversation respected teachers took us for a department tour and showed us all the labs and classrooms.
+### That's how our first day ended.
